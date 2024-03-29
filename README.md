@@ -26,7 +26,7 @@
 
 ### Get in Touch
 
-📧 Email: ksdgv@gmail.com  
+📧 Email: www.ksdgv@gmail.com  
 💼 LinkedIn: [Keeran Dhami](https://www.linkedin.com/in/keerandhami)
 
 ---
